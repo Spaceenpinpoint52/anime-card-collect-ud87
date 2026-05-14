@@ -1,4 +1,4 @@
-#  
+#  Experience anime card collection like never before with anime card collection professional Scripts, the #1 Script. Includes aimbot and invisibility
 
 
 
